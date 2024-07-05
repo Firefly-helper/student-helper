@@ -10,7 +10,9 @@
 
 地址①：GitHub库内
 
-地址②：
+地址②：https://www.123pan.com/s/aVFtVv-XNDOA.html   提取码:iB0T
+
+若地址失效，联系QQ或发邮箱
 
 ## 国内地址：腾讯文档 https://docs.qq.com/doc/DYWxyeHpncnpHY0lw
 
